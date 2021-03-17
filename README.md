@@ -1,0 +1,2 @@
+# etelek
+tanuláshoz
